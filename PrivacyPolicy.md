@@ -1,6 +1,6 @@
 # Privacy Policy
 
-This is the Privacy Policy of EITanGoK.
+This is the Privacy Policy of Quick English Note.
 
 
 ### Contact Us
